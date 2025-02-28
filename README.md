@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @augustdamns
 - 👀 I’m interested in marvel rivals 😍
-- 🌱 I’m currently learning foot massages
+- 🌱 I’m currently learning foot massages 🥵🫣🥰
 - 💞️ I’m looking to collaborate on nothing atm :P
 - 📫 How to reach me mail: konorsieren@gmail.com
 - ⚡ Fun fact: skibidy toilet
